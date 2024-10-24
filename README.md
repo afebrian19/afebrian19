@@ -1,5 +1,8 @@
 ## Hi there 👋
 
+
+![pngwing com (1)](https://github.com/user-attachments/assets/a7fc40e8-5846-46a4-bffd-8ff2d960fc7d)
+
 <!--
 **afebrian19/afebrian19** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
